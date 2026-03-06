@@ -1,4 +1,4 @@
-### Boas Vindas ao meu Perfil 🖤
+### Boas Vindas ao meu Perfil 
 
 Meu Nome é Nathan Santos
 
