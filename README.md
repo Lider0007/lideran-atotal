@@ -8,8 +8,4 @@ Utilizo esse espaço para a minha organização e compartilhamento dos meus proj
 
 ### Você pode entrar em contato comigo 📧
 
-nathansglider007@gmail.com
-
-@nathz_777
-
 ![](https://media.tenor.com/aYOYlFnh6esAAAAM/geto-suguru-jujutsu-kaisen.gif)
